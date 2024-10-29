@@ -41,7 +41,7 @@ I’m actively seeking opportunities in **data analytics and business analysis**
 
 ### 📫 How to Reach Me
 
-Feel free to connect with me on **LinkedIn** or drop me an email if you’re interested in collaborating or just want to chat about all things data!
+Feel free to connect with me on **LinkedIn https://www.linkedin.com/in/abdul-rafay-11b9b625a/** or drop me an email if you’re interested in collaborating or just want to chat about all things data!
 
 ---
 
